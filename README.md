@@ -9,7 +9,7 @@ Meu nome é Moniky
 
 
 
-! [] (happy-charlie-morningstar-hazbin-hotel-icmiy7 p1r3qijzli.gif) 
+! [] (https://media.gifdb.com/happy-charlie-morningstar-hazbin-hotel-icmiy7p1r3qijzli.gif) 
 
 
 
