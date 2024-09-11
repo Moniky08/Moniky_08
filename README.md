@@ -8,7 +8,8 @@ Meu nome é Moniky
     moniky.correa@escola.pr.gov.br
 
 
-  (![shaking-charlie-morningstar-hazbin-hotel-aul2zipwzvvs7yqq](https://github.com/user-attachments/assets/0c2b25ba-bcd1-4db6-a660-d578879e7126)
+
+! [] (happy-charlie-morningstar-hazbin-hotel-icmiy7 p1r3qijzli.gif) 
 
 
 
