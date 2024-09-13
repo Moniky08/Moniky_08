@@ -9,7 +9,7 @@ Meu nome é Moniky
 
 
 
-! [] (https://tenor.com/tH5Z0TK76oQ.gif) 
+ ![hi-there-charlie-morningstar.gif](https://github.com/user-attachments/assets/7ff17c0d-f90c-4f0e-b2af-3d2cd1229d33)
 
 
 
